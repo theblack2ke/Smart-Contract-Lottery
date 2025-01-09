@@ -30,7 +30,4 @@ Thank you for checking out this project! I hope you find it useful and inspiring
 Feel free to connect with me:
 - **X (Twitter)**: [@theblack_2ke](https://x.com/theblack_2ke)
 
----
-
-Let me know if there’s anything else you’d like to add! 😊
 
